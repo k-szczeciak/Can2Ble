@@ -1,0 +1,1 @@
+wersja rafko ale po instalacji baterii muli
